@@ -1,3 +1,3 @@
 # ITS_GIT_1
 il mio primo repositery
-il mio secondo repositery
+idk school stuff
